@@ -28,7 +28,6 @@ With the right mindset and strategies, anyone can achieve their career goals and
 
 So, are you ready to think and act like a promotable employee? Let's begin the journey towards the promotion mindset together.
 
-
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
 
 
