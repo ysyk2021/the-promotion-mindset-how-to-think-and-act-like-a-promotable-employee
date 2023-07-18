@@ -1,7 +1,5 @@
 # Introduction
 
-Introduction
-
 Are you tired of feeling stuck in your career? Do you dream of advancing to the next level but don't know where to start? It's time to adopt the promotion mindset.
 
 "The Promotion Mindset: How to Think and Act Like a Promotable Employee" is a comprehensive guide for anyone who wants to achieve their career goals and advance to the next level. Through engaging anecdotes, evidence-based research, and actionable strategies, readers will discover how to cultivate the mindset they need for success.
