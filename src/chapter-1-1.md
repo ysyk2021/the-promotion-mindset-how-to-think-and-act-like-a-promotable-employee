@@ -1,4 +1,4 @@
-Chapter 1: Defining the Promotion Mindset
+Defining the Promotion Mindset
 =========================================
 
 In this chapter, we will delve into the concept of the promotion mindset and its significance in shaping one's professional growth and success. The promotion mindset is a mindset that goes beyond the current role or position and focuses on continuous improvement, strategic thinking, and taking proactive steps towards career advancement. Let's explore the key aspects of the promotion mindset.

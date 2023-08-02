@@ -1,4 +1,4 @@
-Chapter 5: Avoiding Burnout and Staying Motivated
+Avoiding Burnout and Staying Motivated
 =================================================
 
 In this chapter, we will explore strategies to avoid burnout and maintain motivation while pursuing career advancement. In the fast-paced and demanding modern work environment, it's crucial to prioritize self-care and ensure sustained motivation. Let's delve into effective techniques for avoiding burnout and staying motivated on your journey towards becoming a promotable employee.

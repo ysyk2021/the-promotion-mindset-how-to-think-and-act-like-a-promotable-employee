@@ -1,4 +1,4 @@
-Chapter 8: Identifying Qualities and Skills that Employers Seek in Promotable Employees
+Identifying Qualities and Skills that Employers Seek in Promotable Employees
 =======================================================================================
 
 In this chapter, we will explore the qualities and skills that employers seek in promotable employees. To position yourself as a strong candidate for promotion, it is crucial to understand what organizations value in their top performers. By identifying and developing these sought-after qualities and skills, you can demonstrate your readiness for advancement and increase your chances of securing a promotion. Let's delve into the key qualities and skills that employers seek in promotable employees.
