@@ -1,5 +1,3 @@
-Chapter 3: Developing a Promotion Mindset
-=========================================
 
 Developing a promotion mindset is essential for becoming a promotable employee. In this chapter, we will explore strategies for cultivating a positive attitude and growth mindset, as well as setting and achieving career goals.
 

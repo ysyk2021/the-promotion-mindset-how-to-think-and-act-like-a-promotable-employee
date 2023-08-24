@@ -1,4 +1,3 @@
-# Introduction
 
 Are you tired of feeling stuck in your career? Do you dream of advancing to the next level but don't know where to start? It's time to adopt the promotion mindset.
 

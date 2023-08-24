@@ -1,5 +1,3 @@
-Chapter 5: Communicating Effectively
-====================================
 
 Effective communication is a critical skill for success in the workplace. In this chapter, we will explore strategies for effective communication in the workplace and tips for presenting oneself professionally in all forms of communication.
 

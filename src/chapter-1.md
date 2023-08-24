@@ -1,5 +1,3 @@
-Chapter 1: Introduction
-=======================
 
 The promotion mindset is essential for career advancement. In this chapter, we will define the promotion mindset and provide an overview of how adopting it can lead to career success.
 

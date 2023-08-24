@@ -1,5 +1,3 @@
-Chapter 2: Understanding What Employers Want
-============================================
 
 Understanding what employers want is essential for becoming a promotable employee. In this chapter, we will explore how to identify the qualities and skills that employers seek in their employees, as well as how to assess personal strengths and areas for improvement.
 

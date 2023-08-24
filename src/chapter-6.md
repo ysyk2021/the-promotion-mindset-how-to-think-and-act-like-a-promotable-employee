@@ -1,5 +1,3 @@
-Chapter 6: Demonstrating Value
-==============================
 
 Demonstrating value is an important aspect of being a promotable employee. In this chapter, we will explore how to identify opportunities to add value to the organization and strategies for going above and beyond in daily tasks and projects.
 

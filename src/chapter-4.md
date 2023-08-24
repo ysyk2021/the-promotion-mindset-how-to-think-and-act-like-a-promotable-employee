@@ -1,5 +1,3 @@
-Chapter 4: Building Professional Relationships
-==============================================
 
 Building professional relationships is a crucial aspect of becoming a promotable employee. In this chapter, we will explore strategies for networking and relationship building, as well as developing strong relationships with colleagues, mentors, and supervisors.
 

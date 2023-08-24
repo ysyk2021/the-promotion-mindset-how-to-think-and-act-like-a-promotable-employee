@@ -1,5 +1,3 @@
-Chapter 8: Maintaining a Promotion Mindset
-==========================================
 
 Maintaining a promotion mindset is essential for career advancement and long-term success. In this chapter, we will explore strategies for maintaining a promotion mindset over time, as well as avoiding burnout and staying motivated.
 
